@@ -1,16 +1,27 @@
-## Hi there 👋
+## Far Shore \` \` ***Bound*** \` \` Sys . . .
 
-<!--
-**hiambee/hiambee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+; ⠀⠀ Call us *Bound*  for short . . . !
 
-Here are some ideas to get you started:
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+; ⠀⠀ HOST ⠀⠀ ꒱ . . . Ambi / Leo
+
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+
+
+; ⠀⠀ system rentry + carrd is WIP . . .
+
+; ⠀⠀ host's rentry is *mostly* complete .
+
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+
+; ⠀⠀ All ponies that aren't related to our host / our host's<br> 
+ ⠀⠀ interests are currently under this github instead *!*
+
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+
+t/n . . we hated making this respitory <br>
+but we hate the github bio bullshittery more.
+
+
+*will eventually be more pretty and legible we swear !*
